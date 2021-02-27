@@ -1,1 +1,5 @@
-# Ace
+PLACE ONLY THE DIAMOND-TO-RUBY-PACK.ZIP IN THE RESOURCE FOLDER
+
+
+
+ps pls follow xdaceghost1 on tiktok
